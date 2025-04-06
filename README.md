@@ -1,0 +1,1 @@
+# ai_rural_platform
